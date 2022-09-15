@@ -4,6 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 9405267368 My number
+https://www.linkedin.com/in/shantanu-wadode-335a66230/   My Linkedin
+
 
 
 <!---
